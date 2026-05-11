@@ -1,4 +1,4 @@
-
+Enhance Adobe Spark for macOS with new Adobe Spark for macOS Workflow | batch-processing + text-animation, the #1 workflow. Includes batch-processing and text-animation for a
 
 
 
